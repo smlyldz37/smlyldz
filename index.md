@@ -1,6 +1,6 @@
-Şamil Yıldız 
+### Şamil Yıldız 
 
-Yapılan çalışmalar güncellenecektir 
+Sayfa Gelişim aşamasında 
 
 ### Linkedin hesabım 
 
